@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kt-k10
+- 👋 Hiii, I’m @kt-k10
 - 👀 I’m interested in lots of things
 - 🌱 I’m currently learning about theories
 - 💞️ I’m looking to collaborate on some stuff
